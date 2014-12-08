@@ -3,7 +3,6 @@ lab-notes
 
 lab notes, class notes
 
-I ALSO HAVE 30 PAGES OF HANDWRITTEN LAB NOTES IN PDF FORM, BUT NOT SURE HOW TO UPLOAD? -CATHERINE
 
 
 Tenen—9/3/14
